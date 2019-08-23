@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse
+# Le jour où je suis _mort_
